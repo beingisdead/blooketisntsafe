@@ -1,2 +1,2 @@
 # blooketisntsafe
-Another blooket hack for fun
+Another blooket "hack" for fun
