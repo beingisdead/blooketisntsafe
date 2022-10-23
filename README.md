@@ -1,2 +1,5 @@
 # blooketisntsafe
-Another blooket "hack" for fun
+I LOVE PYTHON
+
+I LOVE PYHTIN
+I LOVE PYTHON
